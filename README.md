@@ -1,1 +1,0 @@
-# ARDaitengushinobi1584ul
